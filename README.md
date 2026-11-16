@@ -6,7 +6,7 @@ Direct 4k movies index watch and download :
  3. https://drive.google.com/drive/folders/1chekKlm8i6Zys2cFi24w7YEtjOCgdPNx
  4. http://23.147.64.113/movies/Other/
  5. porn : https://198.186.131.53/wp-content/video-files/
- 6. mazatv.com
+ 6.https://mazatv.com/
  7. https://www.homemadexxxporn.com/contents/videos/0/
  8. https://yaso.su/NRokKjO3
  9. All otts :
